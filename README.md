@@ -1,0 +1,2 @@
+# Paris_univers_rp
+Bonjour Bonsoir à tous je vous propose cette base qui a été réalisé part moi avec des scripts de base, cette base est tout autant faite pour les nouveaux que pour les anciens. Elle est t'as jours et peut être ouverte dès maintenant à vous de la modifié comme bon vous sembles et n'oubliez pas de partager !!! Si vous avez des soucis je vous laisse mon discord si vous avez des questions ou des problèmes : 💦£Darvineuhhh¥❤ #9329 Deplus si vous voulez voir mon serveur tenez et merci du partage : https://discord.gg/JR8atZyzAK
